@@ -2,4 +2,4 @@
 
 Uma homepage minimalista, sem frescura e direto ao ponto!
 
-Hey that is a very simple and minimalist homepage - straight to the point!
+Hey that is a very simple and minimalist homepage - No big deal... straight to the point!
